@@ -41,7 +41,7 @@ Languages
 Work Experience
 
 Spanish / mother tongue
-English / Level B1 (Attending Business English class)
+English / Level B1+/B2 (Attending Business English class)
 Italian / A1
 
 
